@@ -3,8 +3,21 @@ Integrantes
 
 
 -Argañaraz Sofia Martina
+
+
 -Medina Arapa Antonella Maria Jose
+
+
 -Vizgarra Maria Virginia Lujan
+
+
+
+
+
+
+
+
+
 
 
 
